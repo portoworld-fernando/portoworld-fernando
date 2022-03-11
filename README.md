@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @portoworld-fernando
+- 👀 I’m interested in e-commerce and web development
+- 🌱 I’m part of group of companies based in Portugal
+- 📫 How to reach me on fernando.pinto@portoworld.pt
